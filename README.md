@@ -1,1 +1,0 @@
-# Script40-CrackbyBanx2
